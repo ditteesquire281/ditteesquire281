@@ -2,6 +2,7 @@
 ---
 
 
+<img width="712" alt="blum" src="https://github.com/angelwinter898/angelwinter898/assets/171758410/88f67954-5937-4cc5-bc33-22f41c2ab2be">
 
 
 
